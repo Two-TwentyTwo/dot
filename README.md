@@ -2,8 +2,8 @@
 Please finish the following question by yourself.
 
 PART A) What could a dot mean to you?
-_______________________________________________
+__________________________________
 PART B) Suggest one CREATIVE application.
-_______________________________________________
+__________________________________
 
 Append extra pages when needed.
