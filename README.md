@@ -6,10 +6,10 @@ _______________________________________________
 PART B) Suggest one CREATIVE application.
 _______________________________________________
 
-Append extra pages when needed.__
+Append extra pages when needed. <br />
 
-ANSWERS (from pull requests)__
-Part A) __
-1D object and a refreshing drik__
-Part B)__
-Knowledge Base__
+ANSWERS (from pull requests) <br />
+Part A) <br />
+1D object and a refreshing drik <br />
+Part B) <br />
+Knowledge Base <br />
