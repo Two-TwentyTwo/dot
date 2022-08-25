@@ -1,6 +1,6 @@
 # dot
 Please finish the following question by yourself.
-QUESTION 10 (30 marks) [OPTIONAL]
+QUESTION 10 (30 marks) 
 
 PART A) What could a dot mean to you?
 ____________________________________________________________________________________________________________________________
